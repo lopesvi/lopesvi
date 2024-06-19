@@ -5,9 +5,9 @@
 
 - 💬 Me pergunte sobre **Python, SQL, Power BI e Excel**
 
-- 📫 Voce me encontra através do email **vinilopesp20@gmail.com**
+- 📫 Você me encontra através do email **vinilopesp20@gmail.com**
 
-- 📄 Você pode me conhercer támbem pelo linkdin [https://www.linkedin.com/in/vinicius-lopes-236a62280/](https://www.linkedin.com/in/vinicius-lopes-236a62280/)
+- 📄 Você pode me conhecer também pelo Linkedin [https://www.linkedin.com/in/vinicius-lopes-236a62280/](https://www.linkedin.com/in/vinicius-lopes-236a62280/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
